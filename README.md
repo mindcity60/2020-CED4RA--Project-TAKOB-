@@ -1,6 +1,6 @@
 # 2020-CED4RA--Project-Group-
 
-##Menber
+##Member
 
 - Mr.Maitree Narpoe
 
