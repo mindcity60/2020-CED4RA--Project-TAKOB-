@@ -6,7 +6,7 @@
 - Mr.Matichai Gosoongnoen
 - Mrs.Suttita Thawitchaiyaporn
 - Mr.Rangsit  Nualin
-- Mr.Sasipim Jitpukdee
+- Mrs.Sasipim Jitpukdee
 
 ##Reference
 
